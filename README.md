@@ -7,7 +7,7 @@
 📁 Scripter Roblox Hack Script
 
 ![Fucking](https://komarev.com/ghpvc/?username=accountnop&color=ff54c6)
-![FuckFuckFuck](https://img.shields.io/badge/Discord-NoNoNo!!!%239999-pink)
+![FuckFuckFuck](https://img.shields.io/badge/Discord-TERES%232914-blue)
 
 ![Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=MAZIHUB191&show_icons=true&theme=radical)
 ![Github stast](https://github-readme-stats.vercel.app/api?username=MAZIHUB191&count_private=true&show_icons=true&theme=radical)
