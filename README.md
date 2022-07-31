@@ -2,11 +2,11 @@
 
 # Teres
 
-**Contact on Discord: NoNoNo!!!#9999**
+**Contact on Discord: TERES#2914**
 
-📁 Scripter Roblox Hack Script ,Bot Discord js
+📁 Scripter Roblox Hack Script
 
-![Fucking](https://komarev.com/ghpvc/?username=MAZIHUB191&color=ff54c6)
+![Fucking]([https://komarev.com/ghpvc/?username=accountnop&color=ff54c6])
 ![FuckFuckFuck](https://img.shields.io/badge/Discord-NoNoNo!!!%239999-pink)
 
 ![Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=MAZIHUB191&show_icons=true&theme=radical)
