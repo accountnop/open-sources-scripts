@@ -1,6 +1,6 @@
 <img align='left' src='https://i.ibb.co/kJz6FxD/FF.jpg' width='20%'>
 
-# Besty
+# Teres
 
 **Contact on Discord: NoNoNo!!!#9999**
 
