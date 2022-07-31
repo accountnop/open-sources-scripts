@@ -1,8 +1,8 @@
-<img align='left' src='https://i.ibb.co/kJz6FxD/FF.jpg' width='20%'>
+<img align='left' src='https://tr.rbxcdn.com/e70529488f2b32fd6cba3ec7e7c9e526/150/150/AvatarHeadshot/Png' width='20%'>
 
 # Teres
 
-**Contact on Discord: TERES#2914**
+**TERES#2914**
 
 📁 Scripter Roblox Hack Script
 
